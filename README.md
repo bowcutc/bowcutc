@@ -1,4 +1,4 @@
-## Hi there 👋
+## BYU beats Notre Dame 24-20. You heard it here first
 
 <!--
 **bowcutc/bowcutc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
